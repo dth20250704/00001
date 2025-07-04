@@ -40,4 +40,4 @@ CloudFilm免费站
 是否有稳定更新和清晰分类
 
 通过以上方法，你不仅能找到优质的在线电影资源，也能避免落入盗版、钓鱼等陷阱。建议收藏以上几个网站，并关注它们的更新动态，随时掌握最新资源。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dth20250704/00001）</span>
